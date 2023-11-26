@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with
 - 💬 Ask me about what i know
 - 📫 How to reach me: mprasad20ece@student.mes.ac.in
-- ⚡ Fun fact: always joking
+
 
